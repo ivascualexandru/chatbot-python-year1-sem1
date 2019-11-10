@@ -16,6 +16,6 @@ Boyan Yordanov
 Meldas Jaskelevicius                                                                                                           
 Erik Yzeiraj                                                                                                                   
 Alexandru Ivascu                                                                                                               
-Yumer Iliyanski                                                                                                                 
+Yumer Ilanski                                                                                                                   
 Sachim Sunnny                                                                                                                   
 ˜”*°•.˜”*°• - •°*”˜.•°*”˜˜”*°•.˜”*°• - •°*”˜.•°*”˜˜”*°•.˜”*°• - •°*”˜.•°*”˜˜”*°•.˜”*°• - •°*”˜.•°*”˜˜”*°•.˜”*°• - •°*”˜.•°*”˜
